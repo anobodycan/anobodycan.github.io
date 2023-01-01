@@ -1,2 +1,0 @@
-# anobodycan.github.io
-note
